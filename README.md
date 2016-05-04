@@ -1,4 +1,6 @@
-#Google Bhrome
-Whats brackin
+# Google Bhrome
+## *What's brackin?*
 
-Created by Ryan Ng and Mian Uddin
+This revolutionary Google Chrome (Bhrome) extension that Changes B's to B's. **VERY RARE !! COLLECT THIS!! STAY POSITIVE! LOVE YOU**
+
+*Created by Ryan Ng and Mian Uddin*
